@@ -1,7 +1,7 @@
 
 
 <div align="center" dir="auto">
-  <p>Bro, this account can't received money from freelancer.
+  <p>Bro, that lancer account can't received money from freelancer.
 honestly, I am form Ukraine, not india.
 If you are fine, I hope crypto as pay method.
 Issues that are difficult to discuss in Lancer can be discussed on Telegram or WhatsApp.
